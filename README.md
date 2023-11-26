@@ -1,3 +1,0 @@
-# electronic
-<p>gjvjubnt
-</p>
